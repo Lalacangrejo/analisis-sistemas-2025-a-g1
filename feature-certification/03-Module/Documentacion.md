@@ -1,0 +1,3 @@
+Design Thinking ayuda a identificar oportunidades, desbloquear la innovación y mejorar los resultados empresariales.
+
+Gracias la introducción de Design Thinking como una mejor manera de resolver problemas y descubrir lo que las personas realmente necesitan, IBM cambió su cultura para centrarse más en el cliente y ser una empresa más colaborativa. Este enfoque crea equipos que son más flexibles y receptivos a sus clientes y obtienen mejores resultados.

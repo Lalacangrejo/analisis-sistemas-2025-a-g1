@@ -1,0 +1,2 @@
+Diseño de productos
+Debido a la naturaleza estructurada y basada en el equipo de Design Thinking, es habitual ver su utilización en el desarrollo digital, por ejemplo en programas de software y en interfaces web. Piense en posibles ejemplos como el entorno de interfaz de aplicaciones populares de redes sociales o utilidades comerciales; para que tengan éxito en el mercado, es crucial disponer de un diseño que resulte familiar y fácil de usar.
